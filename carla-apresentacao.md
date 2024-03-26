@@ -1,0 +1,1 @@
+Olá, meu nome é Carla! Tenho 30 anos, sou pedagoga de formação e adoro gatos, livros e fazer trilhas. Sou apaixonada por educação e tecnologia e sempre estou dando um jeito de unir minhas duas paixões. Estou em fase de transição de carreira e me sinto muito grata por contar com a Reprograma nessa joranda!
